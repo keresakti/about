@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡ "Pura-pura jadi pengangguran."
+⚡ "Pura-pura jadi manusia."
 
 
 ## 🌐 Socials:
